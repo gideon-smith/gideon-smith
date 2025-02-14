@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me at gideonksmith@gmail.com
 - 😄 Pronouns: he / him
-- ⚡ Fun fact: I have never used windows and do not intend to in the future
+
 - 
 
 <!---
